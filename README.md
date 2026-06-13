@@ -31,60 +31,60 @@ Here are some ideas to get you started:
 
 https://www.youtube.com/watch?v=C4bbUPYMhP8
 
-One day while bathing in the 🌊
-My talking 🐬 spoke to me
-He spoke to me in 🎶
-From freedom's peace beneath the 🌊
+One day while bathing in the 🌊  
+My talking 🐬 spoke to me  
+He spoke to me in 🎶  
+From freedom's peace beneath the 🌊  
 
-He looked to me 👀 full of ❤️
-Said yes, we live behind the ☀️
-Behind the ☀️
+He looked to me 👀 full of ❤️  
+Said yes, we live behind the ☀️  
+Behind the ☀️  
 
-Behind the ☀️
-Yeah, yeah, yeah, yeah
-Yeah, yeah, yeah, yeah
-Behind the ☀️
+Behind the ☀️  
+Yeah, yeah, yeah, yeah  
+Yeah, yeah, yeah, yeah  
+Behind the ☀️  
 
-The ☀️ goes up
-And the ☀️ gets down
-But like the ❤️ of the ☀️
-My ❤️ continues to pound
-Behind the ☀️
+The ☀️ goes up  
+And the ☀️ gets down  
+But like the ❤️ of the ☀️  
+My ❤️ continues to pound  
+Behind the ☀️  
 
-Now while I shower in the 🌧️
-I watch my 🐬 swim away
-The one who listens to the 🌊
-Can feel the pulse beat of the 🌍
+Now while I shower in the 🌧️  
+I watch my 🐬 swim away  
+The one who listens to the 🌊  
+Can feel the pulse beat of the 🌍  
 
-And like my 🐬 swims so free
-The ☀️ does swim into the 🌊
-Behind the ☀️
+And like my 🐬 swims so free  
+The ☀️ does swim into the 🌊  
+Behind the ☀️  
 
-Behind the ☀️
-Yeah, yeah, yeah, yeah
-Yeah, yeah, yeah, yeah
-Behind the ☀️
+Behind the ☀️  
+Yeah, yeah, yeah, yeah  
+Yeah, yeah, yeah, yeah  
+Behind the ☀️  
 
-Behind the ☀️
+Behind the ☀️  
 
-An 🏝️ flying through the 🌌
-One day your 👦 might ask you why
-And if your 👦 should be a 👧
-She too might ask you of this 🌍
+An 🏝️ flying through the 🌌  
+One day your 👦 might ask you why  
+And if your 👦 should be a 👧  
+She too might ask you of this 🌍  
 
-The ☀️ shines sweet upon your 🏖️
-And yes my 🐬 loves to teach
-Behind the ☀️
+The ☀️ shines sweet upon your 🏖️  
+And yes my 🐬 loves to teach  
+Behind the ☀️  
 
-Behind the ☀️
-Yeah, yeah, yeah, yeah
-Yeah, yeah, yeah, yeah
-Behind the ☀️
+Behind the ☀️  
+Yeah, yeah, yeah, yeah  
+Yeah, yeah, yeah, yeah  
+Behind the ☀️  
 
-The ☀️ goes up
-And the ☀️ gets down
-But like the ❤️ of the ☀️
-My ❤️ continues to pound
-Behind the ☀️
+The ☀️ goes up  
+And the ☀️ gets down  
+But like the ❤️ of the ☀️  
+My ❤️ continues to pound  
+Behind the ☀️  
 
 Wow!
