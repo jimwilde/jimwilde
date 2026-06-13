@@ -1,4 +1,4 @@
-## Hi there 👋
+## 👋 Yo
 
 <!--
 **jimwilde/jimwilde** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🕸️ Frontend developer with 20 years of TypeScript and web experience
+- 🎛️ Indie dance music producer for 25 years — breakbeats, house, and techno released on multiple independent labels
+- 🎸 Self-taught guitarist, 5 years in and still going
+- 🔊 Former audio post-production engineer (mid-2000s)
+- 〰️ Currently deep in DSP and maths study
+- ⚡ Building tools at the intersection of music and the web
+- 🔐 Privacy-first — Proton Drive, SimpleLogin, the works
